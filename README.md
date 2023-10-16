@@ -1,1 +1,1 @@
-# Tecnolog-as-de-Informaci-n-para-los-Negocios
+# Tecnologias-de-Informacion-para-los-Negocios
